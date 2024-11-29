@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on not sure 
 - 📫 How to reach me @whatisnormal59 on X
 - 😄 Pronouns: Old Dude.
-- ⚡ Fun fact: I am who, i am and too old to change!!!
+- ⚡ Fun fact: I am who, i am and trying to change, learn something new!!!
 
 <!---
 Whatisnormal59/Whatisnormal59 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
